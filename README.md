@@ -1,1 +1,2 @@
 # lab_biosenales
+## MARIANA ALVAREZ YARCE Y ANA SEGURO 
